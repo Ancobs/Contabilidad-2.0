@@ -1,1 +1,0 @@
-# Contabilidad-2.0
